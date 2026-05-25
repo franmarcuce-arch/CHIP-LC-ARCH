@@ -1,0 +1,2 @@
+# CHIP-LC-ARCH
+CHIP LC-ARCH: Arquitectura de Conducción Lumínica Cristalina: PROCESADOR FOTONICO-NEUROMORFICO DE ESTADO SÓLIDO PARA INTELIGENCIA ARTIFICIAL GENERAL (AGI): PRISMAS + CUARZO: Utiliza las propiedades ÓPTICAS DEL PRISMA, la resonancia estructural del CUARZO piezoeléctrico y las CAPACIDADES CUÁNTICAS/MATEMÁTICAS DE LAS TIERRAS RARAS:velocidad de la luz
